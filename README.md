@@ -1,6 +1,6 @@
 # WIP
 
-$$\colorbox{#444444}{\color{white}{\text{ 63 }}}\colorbox{#5d2f54}{\color{white}{\text{ 2,058 }}}$$
+$$\color{lightgrey}\text{[63] }\color{#9c5ca8}\text{[2,058]}$$
 
 
 <!--
