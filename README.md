@@ -1,12 +1,28 @@
-# ─── ❖ ── ✦ ── ❖ ───
+# ─── ⋆⋅☆⋅⋆ ───
 
-$$\Large\color{#9c5ca8}\text{✧ emergencybutton ✧}$$
+$$\Large\color{#9c5ca8}\text{📋 Fandom List}$$
+$$\small\color{grey}\text{so i don't forget them :D}$$
 
-$$\small\color{grey}\text{─── ⋆⋅☆⋅⋆ ───}$$
+$$\color{lightgrey}\text{🎮 Roblox}}$$
+> * **Grace**
+> * **Die Of Death**
+> * **Forsaken**
+> * **DIVE!**
 
-$$\color{lightgrey}\text{⭐ Stars: 63 }\quad\color{#9c5ca8}\text{✨ Commits: 2,058}$$
+$$\color{#4ea5d9}\text{🟩 Minecraft \& ARGs}}$$
+> * **A ReGect ARG**
+> * **Monster Lover ARG**
+> * **Minecraft but the protagonist is a speedrunner**
+> * **Searching for a world that doesn't exist**
 
-# ─── ❖ ── ✦ ── ❖ ───
+$$\color{#ff4d4d}\text{🚀 Animation \& Games}}$$
+> * **Any Alan Becker Episodes!** ✨
+> * **Anything abt Among Us!** 📮
+
+$$\small\color{grey}\text{...and probably more... sadly I have memory loss so I don't remember the rest...}$$
+
+# ─── ⋆⋅☆⋅⋆ ───
+
 
 
 <!--
