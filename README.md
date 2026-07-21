@@ -19,7 +19,8 @@ $$\small\color{grey}\text{so i don't forget them :D, ignore this!}$$
 > * **Any Alan Becker Episodes!** ✨
 > * **Anything abt Among Us!** 📮
 
-$$\small\color{grey}\text{...and probably more... sadly I have memory loss so I don't remember the rest...}$$
+$$\large\color{#9c5ca8}\text{⚠️ ...and probably more... sadly I have memory loss so I don't remember the rest... ⚠️}$$
+
 
 # ─── ⋆⋅☆⋅⋆ ───
 
