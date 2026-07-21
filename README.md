@@ -39,7 +39,10 @@ $$\small\color{grey}\text{so i don't forget them :D, ignore this!}$$
 
 <br><br><br><br><br>
 
-okii
+<p align="center">
+  <i>the grace plushie gallery that shouldn't be here... lol!</i>
+</p>
+
 
 
 
