@@ -1,3 +1,4 @@
+
 <img width="112" height="112" alt="345a0b6481fc4fb394a69c248755a866~tplv-e57bbmoh4v-full" src="https://github.com/user-attachments/assets/17fad5c6-79db-4c71-ac82-dfd0981bd9ad" />
 
 
@@ -33,6 +34,7 @@ $$\small\color{grey}\text{so i don't forget them :D, ignore this!}$$
 
 # ─── ⋆⋅☆⋅⋆ ───
 
+<img width="498" height="281" alt="6515e95f9c514c5da6b315d973e14d8f~tplv-e57bbmoh4v-full" src="https://github.com/user-attachments/assets/def9ef30-3708-4447-a4fe-4ef01c916755" />
 
 
 <!--
