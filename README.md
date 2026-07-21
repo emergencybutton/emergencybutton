@@ -1,6 +1,12 @@
-# WIP
+# ─── ❖ ── ✦ ── ❖ ───
 
-$$\color{lightgrey}\text{[63] }\color{#9c5ca8}\text{[2,058]}$$
+$$\Large\color{#9c5ca8}\text{✧ emergencybutton ✧}$$
+
+$$\small\color{grey}\text{─── ⋆⋅☆⋅⋆ ───}$$
+
+$$\color{lightgrey}\text{⭐ Stars: 63 }\quad\color{#9c5ca8}\text{✨ Commits: 2,058}$$
+
+# ─── ❖ ── ✦ ── ❖ ───
 
 
 <!--
