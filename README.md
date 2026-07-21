@@ -1,6 +1,7 @@
 # WIP
 
-![](https://shields.io)
+<img src="https://shields.io" alt="GitHub Badge">
+
 
 <!--
 **emergencybutton/emergencybutton** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
