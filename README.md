@@ -9,7 +9,7 @@ $$\small\color{grey}\text{so i don't forget them :D, ignore this!}$$
 > * **DIVE!**
 > * **Animal hospital ig.**
 > * **Nullscape!!**
-> *  🟩 $$\color{#4ea5d9}\text{Minecraft!}$$ > *
+> *  🟩 🎮 $$\color{lightgrey}\text{Minecraft!}$$ 
 > * **A ReGect ARG!!** > *
 > * **Monster Lover ARG!!** > *
 > * **Minecraft but the protagonist is a speedrunner.**
