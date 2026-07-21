@@ -1,7 +1,6 @@
 # WIP
 
-> [!CAUTION]
-> ` 63 ` ` 2,058 `
+$$\colorbox{#444444}{\color{white}{\text{ 63 }}}\colorbox{#5d2f54}{\color{white}{\text{ 2,058 }}}$$
 
 
 <!--
