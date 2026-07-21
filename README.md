@@ -36,11 +36,10 @@ $$\small\color{grey}\text{so i don't forget them :D, ignore this!}$$
 
 # ─── ⋆⋅☆⋅⋆ ───
 
-This is your first paragraph.
 
-<br><br><br>
+<br><br><br><br><br>
 
-This is your second paragraph, spaced three lines below.
+okii
 
 
 
