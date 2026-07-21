@@ -1,4 +1,4 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Edu+VIC+WA+NT+Hand&weight=700&size=22&duration=6000&pause=1111&color=2579CFDA&width=435&lines=i+usually+zone+out+%3AP;and+is+quite+forgetful+0_q)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Edu+VIC+WA+NT+Hand&weight=700&size=22&duration=6000&pause=1111&color=2579CFDA&width=435&lines=i+usually+zone+out+randomly+%3AP;and+forget+things+fast+0_q)](https://git.io/typing-svg)
 
 
 
