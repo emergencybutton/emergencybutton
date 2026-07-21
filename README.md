@@ -1,4 +1,4 @@
-<img width="444" height="450" alt="image" src="https://github.com/user-attachments/assets/b3f5e30b-a7ae-4dbf-a94a-ac545cd35ef2" />
+<img width="617" height="439" alt="image" src="https://github.com/user-attachments/assets/af33181e-682d-459b-939f-8a1d2e4f95c5" />
 
 
 # ─── ⋆⋅☆⋅⋆ ───
