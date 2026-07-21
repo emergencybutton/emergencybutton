@@ -25,8 +25,10 @@ $$\small\color{grey}\text{so i don't forget them :D, ignore this!}$$
 > * **I don't know If I should start checking out Unstable SMP videos...lol?**
 
 🚀 $$\color{#ff4d4d}\text{Animation and Games}$$
-> * **Any Alan Becker Episodes!!!!!!!!** ✨
-> * **Anything abt Among Us!!!!** 📮
+> * **Any Alan Becker Episodes!!!!!!!!** 
+> * **Anything abt Among Us!!!!**
+> * **FPE! ohmygod im a late joiner to FPE, so don't expect me to know alot abt FPE!!**
+
 
   ### ⚠️ ...and probably more... sadly I have memory loss so I don't remember the rest... ⚠️
 
@@ -37,8 +39,15 @@ $$\small\color{grey}\text{so i don't forget them :D, ignore this!}$$
 <img width="498" height="281" alt="6515e95f9c514c5da6b315d973e14d8f~tplv-e57bbmoh4v-full" src="https://github.com/user-attachments/assets/def9ef30-3708-4447-a4fe-4ef01c916755" />
 
 
+###
+
+
+<img width="287" height="868" alt="6a35a406d4824d809b96e19c7f7d5658_tplv-jj85edgx6n-image-origin-removebg-preview" src="https://github.com/user-attachments/assets/015fe849-7c1b-4175-ac3d-ef602dd225ce" />
+
+
 <!--
-**emergencybutton/emergencybutton** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**emergencybutton/emergencybutton** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.<img width="287" height="868" alt="6a35a406d4824d809b96e19c7f7d5658_tplv-jj85edgx6n-image-origin-removebg-preview" src="https://github.com/user-attachments/assets/8dac7896-582e-43a2-a85c-aeac30d2ef86" />
+
 
 Here are some ideas to get you started:
 
