@@ -1,6 +1,5 @@
 <img width="617" height="439" alt="image" src="https://github.com/user-attachments/assets/af33181e-682d-459b-939f-8a1d2e4f95c5" />
 
-<img width="112" height="112" alt="image" src="https://github.com/user-attachments/assets/1f7a878e-2e21-4928-976e-9695b580d569" />
 
 # ─── ⋆⋅☆⋅⋆ ───
 
