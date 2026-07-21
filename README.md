@@ -40,9 +40,10 @@ $$\small\color{grey}\text{so i don't forget them :D, ignore this!}$$
 <br><br><br><br><br>
 
 <p align="center">
-  <i>the grace plushie gallery that shouldn't be here... lol!</i>
+  <i>- the grace plushie gallery that shouldn't be here... lol!</i>
 </p>
 
+<img width="112" height="112" alt="74bc3a3f-5d22-4c05-ba0a-422815b70d34" src="https://github.com/user-attachments/assets/ea511796-0f3d-4a1f-9e93-57f62137379e" />
 
 
 
