@@ -1,7 +1,7 @@
 # ─── ⋆⋅☆⋅⋆ ───
 
 $$\Large\color{#9c5ca8}\text{📋 Fandom List}$$
-$$\small\color{grey}\text{so i don't forget them :D}$$
+$$\small\color{grey}\text{so i don't forget them :D, ignore this!}$$
 
 🎮 $$\color{lightgrey}\text{Roblox Games}$$
 > * **Grace**
