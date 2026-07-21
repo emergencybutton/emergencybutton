@@ -1,3 +1,5 @@
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQJTJWrMNBbHRTXU2fRz7iH671X-6G3qoyH4PMx_d96kGCIlunHosPsMqhc&amp;s=10" alt="What should Mrs C bake next? Loving the captions by Anne Taintor, by the  way. #frosting #retro #memes #bakingmemories #ifonly #cakedecorating  #recipes"/><img width="444" height="450" alt="image" src="https://github.com/user-attachments/assets/8d9e2c0b-333c-4643-8b1d-09116306a007" />
+
 # ─── ⋆⋅☆⋅⋆ ───
 
 $$\Large\color{#9c5ca8}\text{📋 Fandom List}$$
